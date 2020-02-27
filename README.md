@@ -1,0 +1,2 @@
+# jaquee.p
+Redatora publicitária
